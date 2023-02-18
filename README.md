@@ -1,1 +1,0 @@
-# maybephilosophy.github.io
